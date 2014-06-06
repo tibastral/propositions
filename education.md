@@ -8,6 +8,7 @@ s'épanouisse en ayant 23 heures de cours par semaine ?
 
 => Les programmes sont aussi à revoir dans les grandes largeurs...
 Quelques exemples: 
+
 1. Étudier la démographie du brésil mais pas les bases de pourquoi l'Europe existe, curieuses priorités.
 2. Étudier la tectoniques des plaques aussi en profondeur (4-6mois du programme) mais ne pas aborder le système imunitaire ou l'origine des espèces (darwin) ou même le climat... wtf ?
 3. Faire lire Rhinocéros et en attendant Godo à des adolescants mais même pas 1984... envie de les dégouter de la lecture ? 
