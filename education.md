@@ -1,4 +1,4 @@
-#Ce fichier rassemble toutes les idées qu'on pourrait avoir améliorer l'éducation
+#Ce fichier rassemble toutes les idées qu'on pourrait avoir pour améliorer l'éducation
 
 On a besoin de plus de médecins, et on a un numérus closus, pourquoi céder à
 l'élitisme et limiter le nombre de médecins ?
